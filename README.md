@@ -1,11 +1,11 @@
 ## Ryder_But_Cool Commission Prices
-[Instagram Account - Art!]([url](https://www.instagram.com/ryder_but_cool/))
+[Instagram Account - Art!](https://www.instagram.com/ryder_but_cool/)
 
-[YouTube Account - Animations!]([url](https://www.instagram.com/ryder_but_cool/))
+[YouTube Account - Animations!](https://www.instagram.com/ryder_but_cool/)
 
 *All prices are subject to change depending upon design complexity.*
 
-*There's a lot of maths here.*
+> *There's a lot of maths here...*
 
 *I will calculate the price for you if you just tell me what Framing, Polish, Background options you want, along with the things you'd like me to draw, preferably with a reference photo or detailed description if you don't have a reference photo.*
 
@@ -27,17 +27,17 @@ What I will draw/paint:
 - Headshot/Bust: $20
 
 ![HHHHHHELLOCYRUSRGEHEHHE](https://github.com/user-attachments/assets/d14d5334-9d06-4404-8844-7307645b699a)
-(Example of a Headshot, Painted, Gradient Background piece - Approximately $28)
+> (Example of a Headshot, Painted, Gradient Background piece - Approximately $28)
 
 - Waist: $35
 
 ![colourful artwork oheyah watermark](https://github.com/user-attachments/assets/cf1776a8-9982-4a7a-a6a8-4da0b2ee4dbd)
-(Example of a Waist, Fully Shaded, Abstract Background piece - Approximately $40)
+> (Example of a Waist, Fully Shaded, Abstract Background piece - Approximately $40)
 
 - Full Body: $50
 
 ![Sortofmaybe](https://github.com/user-attachments/assets/77752db9-10b7-4e09-a1a0-38c24cb172ab)
-(Example of a Full Body, Fully Shaded/Painted, Scene Background piece - Approximately $90)
+> (Example of a Full Body, Fully Shaded/Painted, Scene Background piece - Approximately $90)
 
 # Polish 
 (*Determines the Framing Price. Eg. Waist Shot with Simple Shading, $35 x 0.75 = $26.25, rounded to $26*)
@@ -73,6 +73,6 @@ What I will draw/paint:
 
   
 ![oheah](https://github.com/user-attachments/assets/f1dcbb91-a3b8-4839-bfa5-b78e522ab876)
-(Example of a Full Body, Flat Colour, Gradient Background, with two characters - Approximately $53)
+> (Example of a Full Body, Flat Colour, Gradient Background, with two characters - Approximately $53)
 
 If there's anything else I haven't answered here, please do ask me! I am happy to answer any questions. Thank you for reading this all! I love yapping. 
