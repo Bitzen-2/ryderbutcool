@@ -1,7 +1,7 @@
 ## Ryder_But_Cool Commission Prices
-[https://www.instagram.com/ryder_but_cool/](url)
+[Instagram Account - Art!]([url](https://www.instagram.com/ryder_but_cool/))
 
-[https://www.youtube.com/@Ryder_but_cool](url)
+[YouTube Account - Animations!]([url](https://www.instagram.com/ryder_but_cool/))
 
 *All prices are subject to change depending upon design complexity.*
 
