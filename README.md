@@ -1,5 +1,3 @@
-remote_theme: pages-themes/midnight@v0.2.0
-
 ## Ryder_But_Cool Commission Prices
 
 *All prices are subject to change depending upon design complexity.*
