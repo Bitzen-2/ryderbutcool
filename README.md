@@ -1,3 +1,5 @@
+remote_theme: pages-themes/midnight@v0.2.0
+
 ## Ryder_But_Cool Commission Prices
 
 *All prices are subject to change depending upon design complexity.*
@@ -29,7 +31,7 @@ What I will draw/paint:
 - Waist: $35
 
 ![colourful artwork oheyah watermark](https://github.com/user-attachments/assets/cf1776a8-9982-4a7a-a6a8-4da0b2ee4dbd)
-(Example of a Waist, Simple Shaded, Abstract Background piece - Approximately $31)
+(Example of a Waist, Fully Shaded, Abstract Background piece - Approximately $40)
 
 - Full Body: $50
 
