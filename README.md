@@ -1,4 +1,3 @@
-theme: jekyll-theme-midnight
 ## Ryder_But_Cool Commission Prices
 
 *All prices are subject to change depending upon design complexity.*
