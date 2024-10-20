@@ -50,7 +50,13 @@ What I will draw/paint:
 
 - Scene: $10 - $25 (Complex scene increases price)
 
---
+# Extra
+
+- Additional Characters after the First character are at 1/2 the price - Unless piece has 5+ characters, where every character after the fifth is at 1/4 price. Example. A piece with one character, Full Body, Fully Shaded, and no background, would be around $50. *If* an additional character were added, with the same Framing, Polish, and Background options as the first, it would add on 1/2 the price. $50 from the original character, $25 from the additional character ($50 ÷ 0.5 = $25), altogether the piece is $75.
+  
+- I have the right to refuse any commissions without giving a reason. If for any reason I cannot complete your commission, and you'd already paid some or all of it, all of what you'd paid will be refunded.
+  
+- I will not send the finished commission until the full payment has been made. Same with any check ups, if you'd only paid enough for a sketch when you ask for a checkup on the commission, I would only send you the sketch. Don't think this means you need to get the money to me right away, though! Life happens. I am happy to wait :) 
 
 
-
+If there's anything else I haven't answered here, please do ask me! I am happy to answer any questions. Thank you for reading this all! I love yapping. 
