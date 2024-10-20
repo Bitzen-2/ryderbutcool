@@ -1,4 +1,6 @@
 ## Ryder_But_Cool Commission Prices
+[https://www.instagram.com/ryder_but_cool/](url)
+[https://www.youtube.com/@Ryder_but_cool](url)
 
 *All prices are subject to change depending upon design complexity.*
 
@@ -13,7 +15,7 @@ What I will draw/paint:
 - SFW and NSFW*
 - Landscapes
 - Drawovers of a photo
-- Comic Characters, or Comics of your own characters 
+- Comic Characters, or Comics of your own characters
 - Anything, really! Just ask if you're curious about something else! :)
 
 *Nothing depicting illegal or immoral acts. Conviction at artist's discretion.
