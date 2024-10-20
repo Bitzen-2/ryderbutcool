@@ -13,6 +13,7 @@ What I will draw/paint:
 - SFW and NSFW*
 - Landscapes
 - Drawovers of a photo
+- Comic Characters, or Comics of your own characters 
 - Anything, really! Just ask if you're curious about something else! :)
 
 *Nothing depicting illegal or immoral acts. Conviction at artist's discretion.
@@ -22,9 +23,18 @@ What I will draw/paint:
 
 - Headshot/Bust: $20
 
+![HHHHHHELLOCYRUSRGEHEHHE](https://github.com/user-attachments/assets/d14d5334-9d06-4404-8844-7307645b699a)
+(Example of a Headshot, Painted, Gradient Background piece - Approximately $28)
+
 - Waist: $35
 
+![colourful artwork oheyah watermark](https://github.com/user-attachments/assets/cf1776a8-9982-4a7a-a6a8-4da0b2ee4dbd)
+(Example of a Waist, Simple Shaded, Abstract Background piece - Approximately $31)
+
 - Full Body: $50
+
+![Sortofmaybe](https://github.com/user-attachments/assets/77752db9-10b7-4e09-a1a0-38c24cb172ab)
+(Example of a Full Body, Fully Shaded/Painted, Scene Background piece - Approximately $90)
 
 # Polish 
 (*Determines the Framing Price. Eg. Waist Shot with Simple Shading, $35 x 0.75 = $26.25, rounded to $26*)
@@ -37,7 +47,7 @@ What I will draw/paint:
 
 - Simple Shading: 3/4 (0.75)
 
-- Fully Shaded: 1/1 (Full Price, essentially)
+- Fully Shaded: 1/1 (Full Price, essentially) 
 
 - Painted: 1.3 (30% on top of Full Framing Price, multiply the Framing Price by 1.3)
 
@@ -56,7 +66,10 @@ What I will draw/paint:
   
 - I have the right to refuse any commissions without giving a reason. If for any reason I cannot complete your commission, and you'd already paid some or all of it, all of what you'd paid will be refunded.
   
-- I will not send the finished commission until the full payment has been made. Same with any check ups, if you'd only paid enough for a sketch when you ask for a checkup on the commission, I would only send you the sketch. Don't think this means you need to get the money to me right away, though! Life happens. I am happy to wait :) 
+- I will not send the finished commission until the full payment has been made. Same with any check ups, if you'd only paid enough for a sketch when you ask for a checkup on the commission, I would only send you the sketch. Don't think this means you need to get the money to me right away, though! Life happens. I am happy to wait :)
 
+  
+![oheah](https://github.com/user-attachments/assets/f1dcbb91-a3b8-4839-bfa5-b78e522ab876)
+(Example of a Full Body, Flat Colour, Gradient Background, with two characters - Approximately $53)
 
 If there's anything else I haven't answered here, please do ask me! I am happy to answer any questions. Thank you for reading this all! I love yapping. 
