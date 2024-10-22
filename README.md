@@ -24,7 +24,7 @@ What I will draw/paint:
 **Prices much higher than just a drawing or painting
 
 # Framing
-(*The Maximum Amount you may be paying depending on the Polish Quality. All prices in AUD - Australian Dollar*)
+(*The Maximum Amount you may be paying depending on the Polish Quality. All prices in AUD - Australian Dollar. Paypal only*)
 
 - Headshot/Bust: $20
 
