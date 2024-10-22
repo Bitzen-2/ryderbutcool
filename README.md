@@ -1,5 +1,5 @@
 ## Ryder_But_Cool Commission Prices
-[Instagram Account - Art!](https://www.instagram.com/ryder_but_cool/)
+[Instagram Account - Art!](https://www.instagram.com/ryder_but_cool/) - Direct Message me here to get in contact about a commission!
 
 [YouTube Account - Animations!](https://www.instagram.com/ryder_but_cool/)
 
@@ -17,22 +17,18 @@ What I will draw/paint:
 - Landscapes
 - Drawovers of a photo
 - Comic Characters, or Comics of your own characters
+- I'm open to short GIF animations**
 - Anything, really! Just ask if you're curious about something else! :)
 
 *Nothing depicting illegal or immoral acts. Conviction at artist's discretion.
+**Prices much higher than just a drawing or painting
 
 # Framing
-(*The Maximum Amount you may be paying depending on the Polish Quality*)
+(*The Maximum Amount you may be paying depending on the Polish Quality. All prices in AUD - Australian Dollar*)
 
 - Headshot/Bust: $20
 
-![HHHHHHELLOCYRUSRGEHEHHE](https://github.com/user-attachments/assets/d14d5334-9d06-4404-8844-7307645b699a)
-> (Example of a Headshot, Painted, Gradient Background piece - Approximately $28)
-
 - Waist: $35
-
-![colourful artwork oheyah watermark](https://github.com/user-attachments/assets/cf1776a8-9982-4a7a-a6a8-4da0b2ee4dbd)
-> (Example of a Waist, Fully Shaded, Abstract Background piece - Approximately $40)
 
 - Full Body: $50
 
@@ -54,6 +50,9 @@ What I will draw/paint:
 
 - Painted: 1.3 (30% on top of Full Framing Price, multiply the Framing Price by 1.3)
 
+![HHHHHHELLOCYRUSRGEHEHHE](https://github.com/user-attachments/assets/d14d5334-9d06-4404-8844-7307645b699a)
+> (Example of a Headshot, Painted, Gradient Background piece - Approximately $28)
+
 # Background
 (*An extra payment on top of the Framing*)
 
@@ -63,7 +62,10 @@ What I will draw/paint:
 
 - Scene: $10 - $25 (Complex scene increases price)
 
-# Extra
+![colourful artwork oheyah watermark](https://github.com/user-attachments/assets/cf1776a8-9982-4a7a-a6a8-4da0b2ee4dbd)
+> (Example of a Waist, Fully Shaded, Abstract Background piece - Approximately $40)
+
+# Extras
 
 - Additional Characters after the First character are at 1/2 the price - Unless piece has 5+ characters, where every character after the fifth is at 1/4 price. Example. A piece with one character, Full Body, Fully Shaded, and no background, would be around $50. *If* an additional character were added, with the same Framing, Polish, and Background options as the first, it would add on 1/2 the price. $50 from the original character, $25 from the additional character ($50 ÷ 0.5 = $25), altogether the piece is $75.
   
