@@ -23,6 +23,9 @@ What I will draw/paint:
 *Nothing depicting illegal or immoral acts. Conviction at artist's discretion.
 **Prices much higher than just a drawing or painting
 
+![babababdj](https://github.com/user-attachments/assets/19412f23-2345-4861-ae75-88ea4027729e)
+> (Example of Headshot, Messy Lineart/Flat Colour Combo, No Background piece - Approximately $12)
+
 # Framing
 (*The Maximum Amount you may be paying depending on the Polish Quality. All prices in AUD - Australian Dollar. Paypal only*)
 
