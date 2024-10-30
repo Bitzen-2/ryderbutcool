@@ -85,16 +85,23 @@ If there's anything else I haven't answered here, please do ask me! I am happy t
 # Some More Drawings! Just for Fun
 
 ![RRRRyedr](https://github.com/user-attachments/assets/718221e9-dca8-451d-8330-8e63003686fa)
+> (Example of Headshot, Painted, Gradient/Abstract Background piece - Approximately $30)
 
 ![miguelm](https://github.com/user-attachments/assets/b30abe64-85e1-4bb8-9a6b-2d0d94ff4dcc)
+> (Example of Full Body, Painted, Abstract Background piece - Approximately $65)
 
 ![kczbvkjvb](https://github.com/user-attachments/assets/6396f911-8e78-4db3-85fc-08b7f093b58b)
+> (Example of Headshot, Fully Shaded, Abstract Background piece - Approximately $22)
 
 ![jhfcjfcjhc](https://github.com/user-attachments/assets/486fd9ea-d39f-499b-9448-480af4870f0e)
+> (Example of Headshot, Fully Shaded, Abstract Background piece - Approximately $25)
 
 ![bzxh'kcvbljhxbcsjl](https://github.com/user-attachments/assets/47661f43-02b5-4e4e-a810-3dcd1732cbbc)
+> (Example of Waist/Full Body, Flat Colour, Abstract Background piece - Approximately $30)
 
 ![rhydon finished](https://github.com/user-attachments/assets/105dced6-d7fd-4dd2-912c-8d4b15dd0d41)
+> (Example of Waist, Fully Shaded, Abstract Background piece - Approximately $37)
 
 ![springtrap springlocked scene](https://github.com/user-attachments/assets/b8335cb6-3685-42dc-adf1-7365fc7d4906)
+> (Example of Full Body, Fully Shaded/Painted, Abstract Background piece - Approximately $62)
 
