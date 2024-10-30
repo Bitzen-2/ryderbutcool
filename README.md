@@ -80,4 +80,21 @@ What I will draw/paint:
 ![oheah](https://github.com/user-attachments/assets/f1dcbb91-a3b8-4839-bfa5-b78e522ab876)
 > (Example of a Full Body, Flat Colour, Gradient Background, with two characters - Approximately $53)
 
-If there's anything else I haven't answered here, please do ask me! I am happy to answer any questions. Thank you for reading this all! I love yapping. 
+If there's anything else I haven't answered here, please do ask me! I am happy to answer any questions. Thank you for reading this all! I love yapping.
+
+# Some More Drawings! Just for Fun
+
+![RRRRyedr](https://github.com/user-attachments/assets/718221e9-dca8-451d-8330-8e63003686fa)
+
+![miguelm](https://github.com/user-attachments/assets/b30abe64-85e1-4bb8-9a6b-2d0d94ff4dcc)
+
+![kczbvkjvb](https://github.com/user-attachments/assets/6396f911-8e78-4db3-85fc-08b7f093b58b)
+
+![jhfcjfcjhc](https://github.com/user-attachments/assets/486fd9ea-d39f-499b-9448-480af4870f0e)
+
+![bzxh'kcvbljhxbcsjl](https://github.com/user-attachments/assets/47661f43-02b5-4e4e-a810-3dcd1732cbbc)
+
+![rhydon finished](https://github.com/user-attachments/assets/105dced6-d7fd-4dd2-912c-8d4b15dd0d41)
+
+![springtrap springlocked scene](https://github.com/user-attachments/assets/b8335cb6-3685-42dc-adf1-7365fc7d4906)
+
