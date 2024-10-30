@@ -94,7 +94,7 @@ If there's anything else I haven't answered here, please do ask me! I am happy t
 > (Example of Headshot, Fully Shaded, Abstract Background piece - Approximately $22)
 
 ![jhfcjfcjhc](https://github.com/user-attachments/assets/486fd9ea-d39f-499b-9448-480af4870f0e)
-> (Example of Headshot, Fully Shaded, Abstract Background piece - Approximately $25)
+> (Example of Headshot, Simple Shading, Abstract Background piece - Approximately $17)
 
 ![bzxh'kcvbljhxbcsjl](https://github.com/user-attachments/assets/47661f43-02b5-4e4e-a810-3dcd1732cbbc)
 > (Example of Waist/Full Body, Flat Colour, Abstract Background piece - Approximately $30)
