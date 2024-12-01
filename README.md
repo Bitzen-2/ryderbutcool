@@ -13,14 +13,14 @@ What I will draw/paint:
 - Furries (Anthro and Feral)
 - Humans (Original Characters, Characters from shows, selfies, family/friends, etc.)
 - Pets
-- SFW and NSFW*
+- SFW only
 - Landscapes
 - Drawovers of a photo
 - Comic Characters, or Comics of your own characters
 - I'm open to short GIF animations**
 - Anything, really! Just ask if you're curious about something else! :)
 
-*Nothing depicting illegal or immoral acts. Conviction at artist's discretion.
+
 **Prices much higher than just a drawing or painting
 
 ![babababdj](https://github.com/user-attachments/assets/19412f23-2345-4861-ae75-88ea4027729e)
