@@ -13,15 +13,6 @@ Discord - ryder_but_cool2 - Or Direct Message me here!
 
 *International clients - Paypal only. Australian clients - Paypal and BSB*
 
-What I will draw/paint:
-- Furries (Anthro and Feral)
-- Humans (Original Characters, Characters from shows, selfies, family/friends, etc.)
-- Pets
-- SFW only
-- Landscapes
-- Drawovers of a photo
-- Comic Characters, or Comics of your own characters
-- Anything, really! Just ask if you're curious about something else! :)
 
 # Extras
 
