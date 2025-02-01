@@ -66,9 +66,9 @@ Discord - ryder_but_cool2 - Or Direct Message me here!
 
 
 ![rhydon finished](https://github.com/user-attachments/assets/105dced6-d7fd-4dd2-912c-8d4b15dd0d41)
-> (Example of Waist, Fully Shaded, Abstract Background piece - Approximately $37)
+> (Example of Waist, Fully Shaded, Abstract Background piece)
 
 
 ![springtrap springlocked scene](https://github.com/user-attachments/assets/b8335cb6-3685-42dc-adf1-7365fc7d4906)
-> (Example of Full Body, Fully Shaded/Painted, Abstract Background piece - Approximately $62)
+> (Example of Full Body, Fully Shaded/Painted, Abstract Background piece)
 
